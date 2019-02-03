@@ -1,4 +1,4 @@
-This soundscape begins by powering on the computer. /
+This soundscape begins by powering on the computer. \
 Next you'll be able to hear some typing as I log into my computer. /
 I used the effect "Amplify" to make the keystrokes more apparent. /
 The effect "Noise Reduction" was used throughout the entire project on all of my original clips. /
